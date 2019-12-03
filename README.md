@@ -1,5 +1,5 @@
 # Profile
-![GitHub Logo](ken.jpg)
+![GitHub Logo](ken1.jpg)
 ## - ชื่อนายกฤษฎา แขดวง
 ## - ชื่อเล่น เคน
 # สามารถติดต่อได้ที่
